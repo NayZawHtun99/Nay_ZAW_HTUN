@@ -2,4 +2,4 @@
 Studying at Hult
 Age-21 
 Favorite show- Friends
-Favorite anime -One Piece
+Favorite anime - One Piece
